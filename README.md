@@ -1,4 +1,4 @@
-## Hello people! Welcome to Journey With Fendy
+## Hello people! Welcome to Journey With Fendy Repository
 
 ### About Me:
 
